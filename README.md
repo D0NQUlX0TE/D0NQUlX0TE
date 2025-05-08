@@ -1,7 +1,8 @@
-## Hi there 👋
+## 
 
 <!--
-**SUCR0SE/SUCR0SE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**SUCR0SE/SUCR0SE** is a ✨![download (1)](https://github.com/user-attachments/assets/8104cfd2-6677-49e8-b5d9-c5d3ef30a502)
+ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
