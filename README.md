@@ -1,3 +1,3 @@
-sign ata pretty hoes ♡
+sign ata pretty ♡
 
-![Image](https://github.com/user-attachments/assets/6be831ff-1671-426e-b3a1-12ae748addee)
+![Image](https://github.com/user-attachments/assets/fa604e1b-fbda-454f-8e64-3fd24c81c769)
