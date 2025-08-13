@@ -1,9 +1,1 @@
-stop post my ponies vro.. 
-
-![Image](https://github.com/user-attachments/assets/a7b8a0cd-7f40-4449-9ac7-d2a2a6990a15) 
-![Image](https://github.com/user-attachments/assets/1b568c8a-e805-43aa-a402-c6001775ef1d)
-
-the acc (pls report this acc)
-they been posting safe server/indo server/viet server ponies on this acc
-
-![Image](https://github.com/user-attachments/assets/a0bcb44a-ad2c-4ade-bff6-848cafdfa299)
+![Image](https://github.com/user-attachments/assets/785eec13-2f04-4f34-84d2-67d81fe079ff)
