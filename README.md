@@ -1,2 +1,1 @@
-"Free Palestine" because for decades, Palestinians have faced occupation, blockade, and violence. Gaza is under siege—its people denied freedom, safety, and basic human rights. This is not about politics, it's about humanity. We stand for justice, dignity, and the right to live free.
-End the oppression. Free Palestine.
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/1a1b721e-ced5-43b5-9297-e04c0fc988b4" />
