@@ -1,2 +1,2 @@
-![Image](https://github.com/user-attachments/assets/2fa6d73b-daf0-44d9-949d-9d15be844bf1)
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/49917867-ec2b-47d3-aeaa-a4a7d35f8ab2" />
 
