@@ -7,7 +7,7 @@
   [@marina](https://github.com/MAR1NAA4)
   ♡ 𝗰𝗲𝗿𝘁𝗶𝗳𝗶𝗲𝗱 𝗺𝗼𝘁𝗵𝗲𝗿  
   
-  || [@owl](https://github.com/corpseholic) < 𝗹𝗼𝘀𝗲𝗿 𝘂𝗻𝗰 . . 
+  [@owl](https://github.com/corpseholic) < 𝗹𝗼𝘀𝗲𝗿 𝘂𝗻𝗰 . . 
   
   [@kemi](https://github.com/enmitye) i'm not evil ok?
   
