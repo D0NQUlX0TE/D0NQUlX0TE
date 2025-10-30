@@ -4,7 +4,7 @@
 
 <img width="508" height="491" alt="Image" src="https://github.com/user-attachments/assets/81a83c1b-34ce-4750-bee8-d279ce3ca6e3" />
 
-  [@MAR1NAA4](https://github.com/MAR1NAA4) ♡ 𝗰𝗲𝗿𝘁𝗶𝗳𝗶𝗲𝗱 𝗺𝗼𝘁𝗵𝗲𝗿  || [@corpseholic](https://github.com/corpseholic) < 𝗹𝗼𝘀𝗲𝗿 𝘂𝗻𝗰 . . [@enmitye](https://github.com/enmitye) i'm not evil ok?
+  [<img width="219" height="139" alt="Image" src="https://github.com/user-attachments/assets/26098f46-58d9-484e-abbd-586607e38d32" />](https://github.com/MAR1NAA4) ♡ 𝗰𝗲𝗿𝘁𝗶𝗳𝗶𝗲𝗱 𝗺𝗼𝘁𝗵𝗲𝗿  || [@corpseholic](https://github.com/corpseholic) < 𝗹𝗼𝘀𝗲𝗿 𝘂𝗻𝗰 . . [@enmitye](https://github.com/enmitye) i'm not evil ok?
   
  [interact w extremely cautious ᶻ 𝗓 𐰁]
 
