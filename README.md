@@ -8,3 +8,5 @@
 
  𝗥𝗘𝗠𝗜𝗡𝗗𝗘𝗥 : do not copy or take inspiration from my style or color shades. I’d appreciate it if you could respect that.
 
+ My colors are inspired by fanart btw ^_^
+
