@@ -6,7 +6,7 @@
 
 ![Image](https://github.com/user-attachments/assets/d5f1e977-7ef3-41af-9ee1-ed43d86111aa)
 
-u caught my attention congrats but u need to stop this, i dont even know u ok? 
+This caught my attention, and it's bugging me. I've been talked abt this many times w my friends.*
 
 *To whoever's reading this.. this is NOT me. I don't know who's the sender and also, I am NOT the person who talked behind @MAR1NAA4 and @NER0O9's back.*
 
