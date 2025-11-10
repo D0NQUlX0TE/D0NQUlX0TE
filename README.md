@@ -8,8 +8,7 @@
 
 u caught my attention congrats but u need to stop this, i dont even know u ok? 
 
-i also didnt even talk shi about them 
-bcs ik how they will act when they know about it 
+*To whoever's reading this.. this is NOT me. I don't know who's the sender and also, I am NOT the person who talked behind @MAR1NAA4 and @NER0O9's back.*
 
 ![Image](https://github.com/user-attachments/assets/a2564f6b-0088-4b24-81dc-b2546634262c)
 
