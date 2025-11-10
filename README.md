@@ -1,4 +1,6 @@
 <div align="center">
+
+[read this](https://rentry.co/6ouoozp3) 
   
 ![](https://komarev.com/ghpvc/?username=D0NQUlX0TE&color=e2ca8c&base=1000&label=sours)
 
